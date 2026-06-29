@@ -1,4 +1,4 @@
-# 
+# New Ableton Live extensions for Mac OS | VIP Ableton Live extensions for PC Windows. Featuring visual-effects and plugin-support — optimized for maximum performance on every platform.
 
 
 
